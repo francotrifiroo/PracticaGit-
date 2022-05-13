@@ -16,3 +16,5 @@ Franco Trifiro
 
 
 juan x amargo
+
+aguss juan x desertor
